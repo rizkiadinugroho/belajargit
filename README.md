@@ -1,2 +1,2 @@
 # belajargit
-hilang dari sasmita update ke main
+bersih bersih rizki
